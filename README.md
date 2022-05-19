@@ -1,1 +1,2 @@
-# harjoitus2 päivitin readmen
+tuhosin kaiken.
+t. juniori
