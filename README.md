@@ -1,2 +1,2 @@
-tuhosin kaiken.
+tuhosin melkein kaiken.
 t. juniori
